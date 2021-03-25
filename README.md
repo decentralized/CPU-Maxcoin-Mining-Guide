@@ -1,0 +1,1 @@
+# CPU-Maxcoin-Mining-Guide
